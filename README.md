@@ -1,0 +1,2 @@
+# bluzaplayz.github.io
+LOL
