@@ -1,2 +1,2 @@
 # bluzaplayz.github.io
-LOL
+IM NEW BOI
